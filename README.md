@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning design graphic and chemical book
 - 💞️ I’m fresh graduated on Sunan Kalijaga State Islamic University (chemistry education)
 - I have more than 5 years of dental customer service experience
-- 📫 How to reach me fentriyani04@gmail.com fentriyani04.blogspot.com 
+- 📫 How to reach me fentriyani04@gmail.com 
 - 
 
 <!---
